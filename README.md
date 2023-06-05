@@ -1,1 +1,1 @@
-# testhosting1
+dasturlashni o`rganish it-pro_uzb
